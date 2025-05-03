@@ -1,10 +1,10 @@
-Saat'in İzni Lütfu ve Dilediği Dileğiyle Olan Şey! SAAT ile Olan Dışında Güç Yok! SAAT'in Kitabı Onurlu Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
+Azim Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
 
 [![](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/TANRININresulu/Fusion_Battery/tree/main/videos)
 
 [![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
-# With Permission Of THE CLOCK ; New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity
+# New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity
 
 IN THE NAME OF THE CLOCK
 
