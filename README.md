@@ -86,3 +86,7 @@ If ALLAH gives permission using both side of them coated with tungsten coils cas
 ‪and If THE SACRED; ALMIGHTY HONOURABLE PROVIDER THE COMPASSIONATE THE GOD Gives Permission carbon nanotube production is key for spinning wheels of anti gravity accelerators look https://youtu.be/porCfVeWyto at https://youtube.com/playlist?list=PLXuWpuJDnmlc3LH3H_I5lE-2VEEDQJSVA‬
 
 Magnets should operate in their temperature operation range. Nitrogen based magnets have wider temperature operating range (look: [Niron Magnetics](https://www.nironmagnetics.com/)) In case of operation of magnets at outside of their temperature operation range magnets will loose their magnetism, so magnets should re-magnetized in order for magnetic moments of molecular domains of magnets to be polarized in the same direction and by doing so If ALLAH gives permission your magnets will re-gain their magnetic properties : https://youtu.be/hFAOXdXZ5TM or you should just replace the magnets and after replacement operate your magnets only inside of their temperature operation range given by manufacturer, in order for molecular domains of your magnets remained to be magnetized in the same direction as they are and so your fusion battery continues to operate as expected if ALLAH gives permission.
+
+<hr>
+
+[Demonstration Of Gravitational Accelerator](https://www.youtube.com/watch?v=aZeQJclDuDE)
