@@ -102,7 +102,9 @@ On The Other Hand Document Describes New Flying Electromagnetic Accelerator Uses
 
 [Behaviour Of Light As Particle Or Wave Depends On Frame Of Reference Of Observer](https://x.com/rainmaker1973/status/2001215777991520728)
 
-Dual Split Experiment Changes Frame Of Reference Of Light So We Can Observe Light As Wave So Us Observer Without Changing Our Looker Frame Of Reference Can Observe Light As Wave Side On Wall  Surface
+Dual Split Experiment Changes Movement Frame Of Reference Of Light So We Can Observe Light As Wave Instead Of Particle.
+
+By Dual Split Passing Changing Movement Frame Of Refrence Of Light So Turning Light's Movement Into Sideways So We Could Observe Without Changing Our Looker Frame Of Reference Able To Observe Light As Wave Side Of It On Wall Surface Showing Up Currently At That Time!
 
 ---------------------------------
 
