@@ -90,3 +90,13 @@ Magnets should operate in their temperature operation range. Nitrogen based magn
 <hr>
 
 [Demonstration Of Gravitational Accelerator](https://www.youtube.com/watch?v=aZeQJclDuDE)
+
+[Behaviour Of Light As Particle Or Wave Depends On Frame Of Reference Of Observer](https://x.com/rainmaker1973/status/2001215777991520728)
+
+Dual Split Experiment Changes Frame Of Reference Of Light So We Can Observe Light As Wave So Us Observer Without Changing Our Looker Frame Of Reference Can Observe Light As Wave Side On Wall  Surface
+
+---------------------------------
+
+And Wish To Reply This [youtu.be/DHsm-woU-sE?si=6fhUVMGQgCo-R86g](youtu.be/DHsm-woU-sE?si=6fhUVMGQgCo-R86g) Comment Deleter Video Channel From Here In Their Language "Turkish":
+
+"11:50 den sonrası saçmalık 11:21 deki “-mış” nedir? Deney sonuç ortada! He anlayamadıysanız dalga parçacık nasıl oluyor şunu izleyin [x.com/rainmaker1973/status/2001215777991520728](https://x.com/rainmaker1973/status/2001215777991520728?s=46) ışığı dalga yada parçacık gibi görmeniz sizin bakış açınızla ilgili; çift yarık sadece sizin frame of reference ınızı yani bakış açınızı aslında fotonun hareket eksenlerini yer değiştirtiyor ve siz fotona bakamadığınız yanal eksenlerden bakma imkanı ediniyorsunuz yani kazanan izafiyet"
