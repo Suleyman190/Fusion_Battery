@@ -123,5 +123,3 @@ _________________________________
 Dünya'daki kötülüklerin tek bir nedeni var [7:19](https://acikkuran.com/7/19) cennetliklerin işlemedikleri tek günah: "soy ağacından yemek: soyunu üretmek"
 
 _________________________________
-
-patent alıp veya almadan üretip edinebilirsiniz
